@@ -7,4 +7,4 @@ balsh uahs eosfj rhg ohdfo uhg dfiogfd huti ghbi thgffb totj oirjfkj jpfbog erjg
 - kontakt
 
 tvarohovy kolač
-neni barz dobbry
+neni barz dobbry podla mojho nazoru
