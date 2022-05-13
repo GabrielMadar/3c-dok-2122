@@ -7,7 +7,4 @@ balsh uahs eosfj rhg ohdfo uhg dfiogfd huti ghbi thgffb totj oirjfkj jpfbog erjg
 - kontakt
 
 tvarohovy kolač
-
-
-
-Depression 
+neni barz dobbry
